@@ -1,4 +1,4 @@
-**新加坡远游卡可以注册WhatsApp吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡远游卡可以注册WhatsApp吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在现代生活中，通讯工具的重要性不言而喻。无论是日常生活还是旅行期间，我们都需要一种便捷的方式来保持联系。对于计划前往新加坡的朋友来说，一张适合本地使用的SIM卡显得尤为重要。而提到新加坡的通讯卡，远游卡（SingPass SIM）无疑是一个热门选择。不过，很多用户可能会有疑问：新加坡远游卡是否支持注册WhatsApp等即时通讯软件呢？
 
@@ -54,4 +54,4 @@
 
 最后提醒一下，如果你对远游卡有任何疑问或困惑，不妨加入我们的讨论群组，与其他用户一起交流心得。相信在这里，你会找到更多有用的信息！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
