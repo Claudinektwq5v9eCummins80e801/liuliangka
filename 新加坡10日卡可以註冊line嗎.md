@@ -30,6 +30,6 @@
 
 综上所述，使用新加坡10日卡注册Line并非难事，只要你具备基本的技术知识并遵循正确的操作步骤，就能顺利完成整个过程。希望这篇文章能对你有所帮助，祝你在新加坡度过一段愉快的旅程！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
