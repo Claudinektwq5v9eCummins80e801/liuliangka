@@ -1,4 +1,4 @@
-# 新加坡上网卡怎么注册Instagram？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新加坡上网卡怎么注册Instagram？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在新加坡，许多人都喜欢使用Instagram来分享生活点滴、记录旅行见闻或者与朋友互动。然而，如果你刚到新加坡，可能会遇到一个问题：如何用新加坡的上网卡注册Instagram呢？其实，这并不难，只要按照以下步骤操作即可。
 
@@ -22,4 +22,4 @@
 
 希望这篇指南能帮助到那些正在新加坡旅行或居住的朋友顺利地注册并享受Instagram带来的乐趣！如果你还有其他疑问，欢迎随时留言讨论哦。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

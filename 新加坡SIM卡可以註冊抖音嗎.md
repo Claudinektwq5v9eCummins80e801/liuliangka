@@ -20,6 +20,6 @@
 
 总之，新加坡的SIM卡是可以用来注册抖音的，只要你注意以上提到的一些细节问题。希望这篇文章能为你提供一些有用的信息和建议。无论你是想记录新加坡的美丽风光，还是分享自己的日常生活，抖音都能成为你展示自我的绝佳平台。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
