@@ -1,4 +1,4 @@
-**意大利数据卡可以注册OpenAI吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**意大利数据卡可以注册OpenAI吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 最近，关于是否可以用意大利数据卡注册OpenAI的问题，引起了不少朋友的关注和讨论。尤其是对于那些对人工智能领域感兴趣，或者需要使用OpenAI的服务的人来说，这个问题显得尤为重要。今天，我们就来聊聊这个话题，希望能给大家提供一些清晰的信息。
 
@@ -20,4 +20,4 @@
 
 总之，意大利的数据卡是可以用来注册OpenAI的，只要你按照正确的流程操作，并且做好充分准备。希望这篇文章能够帮助到正在为此困扰的朋友。如果你还有其他疑问，欢迎随时留言交流！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
