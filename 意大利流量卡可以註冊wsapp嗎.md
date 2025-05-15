@@ -20,6 +20,6 @@
 
 最后提醒大家一句：无论身处何地，安全始终是我们最应该重视的事情。希望大家都能谨慎行事，理智消费，让每一次交流都充满温暖与真诚！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
