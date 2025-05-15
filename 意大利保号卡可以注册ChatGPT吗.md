@@ -1,4 +1,4 @@
-**意大利保号卡可以注册ChatGPT吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**意大利保号卡可以注册ChatGPT吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 最近，很多人都在讨论关于使用意大利保号卡（也叫意大利虚拟号码）来注册ChatGPT的问题。作为一个对科技和网络工具感兴趣的人，我决定深入研究一下这个问题，看看是否真的可行。
 
@@ -40,4 +40,4 @@
 
 无论你是技术小白还是资深玩家，都可以通过不断学习和实践来提升自己的技能。如果你有任何疑问或者需要进一步的帮助，欢迎随时留言交流。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

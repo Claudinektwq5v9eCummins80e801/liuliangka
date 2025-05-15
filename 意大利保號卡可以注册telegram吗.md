@@ -1,4 +1,4 @@
-**意大利保号卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**意大利保号卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 随着全球数字化进程的加速，即时通讯软件成为了我们生活中不可或缺的一部分。其中，Telegram以其强大的功能、加密通信以及跨平台支持，吸引了无数用户。对于生活在海外的华人来说，选择合适的SIM卡或电话卡尤为重要，而意大利保号卡作为一种便捷的选择，也引发了大家的关注：意大利保号卡到底能不能用来注册Telegram呢？
 
@@ -39,4 +39,4 @@
 
 最后再次提醒大家，无论采用何种方式注册Telegram，都务必遵守当地法律法规，合理合法地使用这款优秀的社交平台。祝每位读者都能享受到畅快无阻的沟通体验！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
