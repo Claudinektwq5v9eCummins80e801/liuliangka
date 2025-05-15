@@ -1,4 +1,4 @@
-**新加坡保号卡可以注册Instagram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡保号卡可以注册Instagram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个高度互联的世界里，社交媒体已经成为人们日常生活中不可或缺的一部分。无论是记录生活点滴、分享心情故事，还是与世界各地的朋友保持联系，Instagram都是一款备受喜爱的应用程序。然而，对于居住在新加坡的人来说，是否可以用新加坡保号卡（SingPass）来注册Instagram呢？这个问题引发了广泛的讨论和疑问。
 
@@ -20,4 +20,4 @@
 
 总之，无论你是新加坡居民还是其他国家的用户，只要按照正确的步骤操作，就能顺利注册并享受Instagram带来的乐趣。希望这篇文章能为大家解答疑惑，并为那些想要加入Instagram社区的朋友提供一些有用的指导。如果你还有其他相关的问题，欢迎随时留言交流！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

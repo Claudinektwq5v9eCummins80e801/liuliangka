@@ -1,4 +1,4 @@
-**新加坡保号卡怎麽註冊TG [[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡保号卡怎麽註冊TG [[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天咱们聊聊新加坡的保号卡（SingPass）和如何通过它注册Telegram（TG）。可能很多人对这两者之间的联系感到好奇，毕竟一个是政府服务系统，一个是全球知名的即时通讯工具。其实，借助新加坡的保号卡，你可以轻松注册Telegram，省去了不少麻烦。接下来，我就详细给大家介绍一下这个过程。
 
@@ -24,4 +24,4 @@
 
 希望这篇文章能对你有所帮助。如果你还有其他关于SingPass或者Telegram的问题，欢迎随时留言讨论。我们一起交流学习，共同进步！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

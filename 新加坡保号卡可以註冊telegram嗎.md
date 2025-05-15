@@ -1,4 +1,4 @@
-**新加坡保号卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡保号卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天咱们来聊聊一个很多人都关心的问题——新加坡的保号卡（SingPass）能不能用来注册Telegram这款全球流行的即时通讯软件呢？如果你对这个话题感兴趣，或者正好在新加坡生活、工作，又或者只是单纯想了解下相关信息，那这篇文章就非常适合你了。
 
@@ -46,6 +46,6 @@ SingPass的应用范围非常广泛，几乎涵盖了所有与政府相关的在
 
 ### 总结
 
-综上所述，虽然新加坡的保号卡（SingPass）并不能直接用于注册Telegram，但我们依然可以通过合法途径顺利完成整个流程。希望本文对你有所帮助！如果你还有其他疑问，欢迎随时留言讨论。最后，别忘了关注我们的Telegram频道[[TG💪+ @donk5151](https://t.me/s/donk5151)]，获取更多有趣的内容哦！
+综上所述，虽然新加坡的保号卡（SingPass）并不能直接用于注册Telegram，但我们依然可以通过合法途径顺利完成整个流程。希望本文对你有所帮助！如果你还有其他疑问，欢迎随时留言讨论。最后，别忘了关注我们的Telegram频道[[TG💪+ @esim1088](https://t.me/s/esim1088)]，获取更多有趣的内容哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -30,8 +30,8 @@
 
 总之，新加坡的手机号码是可以用来注册OpenAI的，只要按照上述步骤操作即可。当然，如果你对注册过程有任何疑问，也可以随时向专业人士咨询，他们会给到更详细的指导。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最后，无论你是初次接触OpenAI还是已经对其有所了解，都希望这篇文章能为你提供一些有用的信息。记住，在享受科技带来的便利的同时，也要时刻关注个人信息的安全。如果你还有其他关于OpenAI或其他技术相关的问题，欢迎随时交流讨论！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

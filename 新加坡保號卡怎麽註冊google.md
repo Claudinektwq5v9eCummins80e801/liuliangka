@@ -1,4 +1,4 @@
-# 新加坡保号卡怎么注册Google账户？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新加坡保号卡怎么注册Google账户？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在新加坡，许多人可能会因为各种原因需要注册Google账户，比如使用Gmail收发邮件、下载应用程序或者享受Google Drive提供的云存储服务。然而，如果你手头只有新加坡的保号卡（SingPass），可能就会感到困惑：这玩意儿到底能不能用来注册Google账户呢？别担心，这篇文章将详细为你解答如何用新加坡保号卡注册Google账户。
 
@@ -83,4 +83,4 @@ SingPass的功能非常强大，但它的用途主要限于政府服务领域。
 
 注册Google账户并不复杂，即使你只有新加坡保号卡，也能顺利完成注册。通过SingPass的帮助，你可以更方便地获取电子邮件地址和验证身份。记住，在整个注册过程中，保持网络稳定和输入正确的信息至关重要。
 
-希望这篇文章能帮助你顺利注册Google账户！如果还有其他疑问，欢迎在评论区留言交流。[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+希望这篇文章能帮助你顺利注册Google账户！如果还有其他疑问，欢迎在评论区留言交流。[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

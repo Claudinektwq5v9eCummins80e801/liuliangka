@@ -1,4 +1,4 @@
-**新加坡手機卡可以註冊telegram嗎？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡手機卡可以註冊telegram嗎？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今数字化飞速发展的时代，即时通讯工具已经成为人们日常生活中不可或缺的一部分。其中，Telegram以其强大的功能、安全性和隐私保护赢得了全球用户的青睐。然而，对于许多新加坡用户来说，是否可以用本地的手機卡注册Telegram，却是一个经常被讨论的话题。
 
@@ -38,4 +38,4 @@ Telegram之所以受到欢迎，不仅因为它支持跨平台使用，还因为
 
 无论你是刚接触Telegram的新手，还是已经在使用它的老用户，都希望这篇文章对你有所帮助。如果有任何疑问或经验分享，欢迎随时交流！让我们一起探索更多可能性吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

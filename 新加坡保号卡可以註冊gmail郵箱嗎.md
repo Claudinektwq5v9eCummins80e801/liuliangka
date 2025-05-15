@@ -1,4 +1,4 @@
-**新加坡保号卡可以注册Gmail邮箱吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**新加坡保号卡可以注册Gmail邮箱吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在现代社会，电子邮件已经成为我们生活中不可或缺的一部分。无论是工作、学习还是日常生活中的沟通交流，电子邮件都扮演着重要的角色。而Google旗下的Gmail邮箱作为全球最受欢迎的电子邮件服务之一，自然也备受关注。然而，对于一些居住在新加坡的朋友来说，有一个问题常常困扰着他们——使用新加坡的保号卡（SingPass）是否能够注册Gmail邮箱呢？
 
@@ -79,4 +79,4 @@ SingPass的主要功能包括：
 
 最后，希望这篇文章能够解答大家关于“新加坡保号卡是否可以注册Gmail邮箱”的疑问，并为大家提供实用的解决方案。如果你还有其他相关问题或经验分享，欢迎在评论区留言讨论！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
