@@ -1,4 +1,4 @@
-# 新加坡旅遊卡怎麽註冊telegram [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 新加坡旅遊卡怎麽註冊telegram [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化时代，Telegram 已成为全球范围内备受欢迎的一款即时通讯工具。它不仅功能强大，而且安全性极高，因此吸引了无数用户。对于计划前往新加坡旅行的朋友来说，注册 Telegram 是一个非常实用的选择。不仅可以与家人朋友保持联系，还能获取最新的旅行资讯和攻略。那么，如何利用新加坡旅遊卡注册 Telegram 呢？这篇文章将为你详细介绍整个过程。
 
@@ -56,4 +56,4 @@
 
 无论你是第一次踏上新加坡的土地，还是再次访问这片美丽的土地，都祝愿你有一个难忘的旅程。记得带上你的新加坡旅遊卡，让它成为你旅行中的得力助手。现在就行动起来吧，开始你的 Telegram 注册之旅！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

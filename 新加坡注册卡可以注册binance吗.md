@@ -23,8 +23,8 @@
 
 最后，我们再来总结一下新加坡注册卡能否注册Binance的问题。总体而言，只要用户提供真实有效的身份证明文件，并遵循Binance的注册流程和当地法律法规，大多数新加坡用户是可以成功注册并使用Binance的。当然，具体的注册体验可能会因个人情况而有所不同，因此建议大家在注册前做好充分准备。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 无论你是初学者还是资深玩家，Binance都为你提供了广阔的发展空间。只要你愿意投入时间和精力去学习和实践，相信一定能在这个充满机遇的领域取得理想的成绩。让我们一起携手，探索加密货币的无限可能吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
